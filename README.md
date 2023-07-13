@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Gaetano Spera
+- 👀 I’m interested in design and technology.
+- 🌱 I’m currently learning design and developing
+- 📫 How to reach me mailto:getsprastudio@gmail.com
+- 💣 Follow me on instagram: gaetano.sp
